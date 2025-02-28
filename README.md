@@ -1,0 +1,2 @@
+# Postmorthem_Fake_Phishing927630
+Postmorthem Analysis of Fake_Phishing927630 Scam
